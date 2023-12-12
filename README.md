@@ -1,1 +1,0 @@
-# quantumnorman.github.io
